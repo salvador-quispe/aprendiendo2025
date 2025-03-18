@@ -1,1 +1,0 @@
-# aprendiendo2025
